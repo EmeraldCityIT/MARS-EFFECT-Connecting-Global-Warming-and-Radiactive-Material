@@ -4,4 +4,4 @@ The investigation of stored devices and those lost at sea create unbalanced heat
 Research into built up ambient heat from radiactive materials as a cause of ocean temperature increase. 
 Low ambient temperatures of nuclear devices compound through mass production. 
 Investigations into possible ground temperature increase in dump sites.
-Cleanup and looking for weapons that have been lost or "off record".
+This project plans for salvaging and looking for weapons that have been lost or "off record".
