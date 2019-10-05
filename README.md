@@ -14,7 +14,7 @@ As heat is continuously released in our foreseable continuous future, the heat o
 
 Heat will become exponentially multiplied by tons of waste produced through munitions and nuclear power. 
 
-While this topic does not discuss life on Mars, characteristics of mars show a planet that burned up most of it's water and atmosphere via some type of uncontrolled heat source.
+While this topic does not discuss life on Mars, characteristics of Mars could represent planet that burned up most of it's water and atmosphere via some type of uncontrolled heat source.
 
 
 
