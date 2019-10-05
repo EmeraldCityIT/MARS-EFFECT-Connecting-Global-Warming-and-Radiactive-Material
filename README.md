@@ -12,6 +12,6 @@ Nuclear Waste and lost arrows are heat sources which we do not have the ability 
 
 As heat is continuously released in our foreseable continuous future, the heat of our overal system "Earth" is going to rise.
 
-Heat will become exponentially multiplied by tons of waste produced by munitions and nuclear power. 
+Heat will become exponentially multiplied by tons of waste produced through munitions and nuclear power. 
 
 
